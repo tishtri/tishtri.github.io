@@ -1,1 +1,0 @@
-Tatiana Shmeleva web-site
